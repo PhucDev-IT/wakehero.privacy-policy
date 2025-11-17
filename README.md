@@ -1,0 +1,1 @@
+# wakehero.privacy-policy
